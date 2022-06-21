@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **muditmahajan21@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/s/adb07pmv44y2bdv/Mudit_s_Resume.pdf?dl=0](https://www.dropbox.com/s/adb07pmv44y2bdv/Mudit_s_Resume.pdf?dl=0)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19glrDcxUPgtP9s1wGKvLIW_t80YmdNSO/view](https://drive.google.com/file/d/19glrDcxUPgtP9s1wGKvLIW_t80YmdNSO/view)
 
 - ⚡ Fun fact **I break my Linux setup on a monthly basis**
 
